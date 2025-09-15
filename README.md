@@ -1,2 +1,2 @@
-# arushgore.github.io/DCstudios
+# [arushgore.github.io/DCstudios] (arushgore.github.io/DCstudios)
 A made up website about a made up company
